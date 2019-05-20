@@ -9,6 +9,5 @@ What's so great about Panther is he's a superhero who sees himself as a politici
 
 It just so happens that the country is a warrior-based nation where the leaders have to be warriors, as well, so sometimes he has to go fight. 
 So he was my first choice and my favourite superhero.
-
 WAKANDA FOREVER.
 
