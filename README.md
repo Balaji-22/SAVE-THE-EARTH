@@ -8,5 +8,7 @@ Moreover, King T’challa is an honourable person who thinks for the welfare of th
 What's so great about Panther is he's a superhero who sees himself as a politician, as a leader in his country. 
 
 It just so happens that the country is a warrior-based nation where the leaders have to be warriors, as well, so sometimes he has to go fight. 
-So he was my first choice and my favourite superhero. WAKANDA FOREVER.
+So he was my first choice and my favourite superhero. 
+
+WAKANDA FOREVER.
 
